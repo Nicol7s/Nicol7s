@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Nicol7s 😁
+## Bem-vindo(a) ao meu perfil!😁
 
  <div>
    <a href="https://github.com/Nicol7s">
